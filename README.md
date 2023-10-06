@@ -5,4 +5,4 @@
 - 🤔 I’m looking for help with how to start coding and how to improve my knowledge
 - 📫 How to reach me:
   You can find me by email: edmilson.cc@gmail.com
-  or try to find Edmilson Correia on Facebook or Instagram
+  or try to find me by my name on Facebook or Instagram
